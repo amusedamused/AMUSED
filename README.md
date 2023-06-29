@@ -2,14 +2,23 @@
 AMUSED Audiovisual | Marie Dahlén
 
 ARTISTI WORK EXPERIENCE
+
 2023
+
 [VR VJ] AMUSED @ Nonagon Festival | Svanö, Sweden (upcoming)
+
 [VR Live Set] AMUSED @ R00T’s CLUB | VRChat, Online
+
 [VR Exhibition] SYMBIOS  Japan Stiftelsen Grant @ Högskolan Dalarna | Falun, Sweden
+
 [VR Exhibition] SYMBIOS Japan Stiftelsen Grant @ Hola Folkhögskola | Prästmon, Sweden
+
 [VJ] 10 % HUMAN, Jenny Forsgren @ Scenkonst Museumet | Stockholm, Sweden
+
 [VR Live Set] AMUSED @ SOLAR | VRChat, Online
+
 [VR Performance] AMUSED x R00T | NeosVR, Online
+
 
 2022
 [VJ] AMUSED @ Aavistus Festival | Helsinki, Finland 
